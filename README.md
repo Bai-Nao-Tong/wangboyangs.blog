@@ -1,1 +1,1 @@
-# wangboyangs.blog
+http://openjudge.cn/
